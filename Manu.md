@@ -1,3 +1,0 @@
-# Hola anigos
-
-Soy Manu
